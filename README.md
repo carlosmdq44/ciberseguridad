@@ -3,16 +3,6 @@ Enlace donde voy a compartir un fichero de obsidian con la recopilación de todo
 
 https://drive.google.com/file/d/1Tg34PGQIlPr4-EaPVie2zEftnlNZIryu/view?usp=share_link
 
-### VÍDEOS DEL CANAL:
-
- VÍDEO 4 --> https://youtu.be/3kDLRq8KL7M
-
- VÍDEO 3 --> https://youtu.be/lCsmw_sPdD8
- 
- VÍDEO 2 --> https://youtu.be/_ab_HVP_lRc
- 
- VÍDEO 1 --> https://youtu.be/0bSABxauiMc
-
 -----------------------------------------------------------------------------------
 
 ### INSTRUCCIONES DE DESCARGA
